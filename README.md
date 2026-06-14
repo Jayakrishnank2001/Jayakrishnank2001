@@ -5,7 +5,7 @@
 
 - How to reach me **jkrishnan2001@gmail.com**
 
-- Know about my experiences [https://drive.google.com/file/d/1f0ZCFTVoeqdzAUHo7GCLq0xWBqcdrwFs/view?usp=drive_link](https://drive.google.com/file/d/1f0ZCFTVoeqdzAUHo7GCLq0xWBqcdrwFs/view?usp=drive_link)
+- Know about my experiences [https://drive.google.com/file/d/1hFtkXDZDgzO5YsY9-ZquDwDb7Js-CWow/view?usp=sharing](https://drive.google.com/file/d/1hFtkXDZDgzO5YsY9-ZquDwDb7Js-CWow/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
