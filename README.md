@@ -1,11 +1,9 @@
 <h1 align="center">Hi, I'm Jayakrishnan K</h1>
 <h3 align="center">Software Developer</h3>
 
-- All of my projects are available at [https://jayakrishnank-portfolio.netlify.app/](https://jayakrishnank-portfolio.netlify.app/)
-
 - How to reach me **jkrishnan2001@gmail.com**
 
-- Know about my experiences [https://drive.google.com/file/d/1n2Bsi3hZoswSyJXR9aB2n_E0njnlTbHl/view?usp=sharing](https://drive.google.com/file/d/1n2Bsi3hZoswSyJXR9aB2n_E0njnlTbHl/view?usp=sharing)
+- Know about my experiences [https://drive.google.com/file/d/1jETKphtZgzP2ndNXtd4yrTp5EiytpYWW/view?usp=sharing](https://drive.google.com/file/d/1jETKphtZgzP2ndNXtd4yrTp5EiytpYWW/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
